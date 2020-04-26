@@ -13,4 +13,4 @@ I rarely do modpacks,
 Although my production level is very low, I will work hard.
 And I will post my work in the future.
 
-§4 My homepage link on planet Minecraft:https://www.planetminecraft.com/member/aillotiky/
+My homepage link on planet Minecraft:https://www.planetminecraft.com/member/aillotiky/
